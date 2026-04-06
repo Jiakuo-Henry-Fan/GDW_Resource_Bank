@@ -23,7 +23,5 @@ This is a resource bank for Group Discussion Workshop (GDW) for UNNC OCSa Group 
 
 📢 **Latest Update**
 
-- **Workshop #2 will be hosted on Dec. 3**
-- **11.30 Workshop #3 Unit 6**
-- **11.30 Workshop #3 Unit 5**
+- **Now all of which have been uploaded. If you are a class of 2029 students, I wish you ace it. If you are a UNNC year 1 student after class of 2029, hopefully you will find something contributive here.**
 </aside>
